@@ -60,7 +60,7 @@ Classic Brown Soundsの頭文字をとってCBS。
 
 Pistachio Studioのハウスバンド。CBSのライブでのバックバンドです。
 
-- **ryo takahash**i
+- **ryo takahashi**
     
     福岡県出身。88年生まれ。Pistachio Studioのハウスバンド"Chicken Is Nice"のドラム担当。  
     楽曲の録音とミックスすべてをこなす。基本的にはマスタリングも。  
